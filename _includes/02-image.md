@@ -1,0 +1,1 @@
+![Miata](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgaragedreams.net%2Fcar-facts%2Fwhy-is-the-mx-5-called-miata-in-north-america&psig=AOvVaw3D2noOcGWI9qzjiyl-_ofe&ust=1636482284815000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCIiepNyxifQCFQAAAAAdAAAAABAD)
